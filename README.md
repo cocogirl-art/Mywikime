@@ -1,3 +1,5 @@
+![6photo](https://github.com/user-attachments/assets/57631cac-dd55-450f-b983-32c2459c4dee)
+![6photo](https://github.com/user-attachments/assets/dd5a0a27-acf2-4d6a-be7d-d668bd7ca8fc)
 # Mywikime
 myself 
 <!DOCTYPE html>
